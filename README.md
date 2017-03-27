@@ -1,1 +1,1 @@
-# SharmaVinayKumar.github.io
+# vinaypost.github.io
